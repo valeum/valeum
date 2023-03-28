@@ -1,1 +1,1 @@
-I'm a Swiss computer scientist and artist. After completing my education, I further strengthened my skills in the areas of system administration and software development through various continuing education programs.
+I'm Valeum, a Swiss computer scientist and artist. After completing my education, I further strengthened my skills in the areas of system administration and software development through various continuing education programs.
