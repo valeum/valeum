@@ -1,1 +1,2 @@
-👋 Hi, I’m @valeum
+I'm a Swiss computer scientist and artist. After completing my education, I further strengthened my skills in the areas of system administration and software development through various continuing education programs. In addition to my professional activities, I spend most of my free time on digital and analogue studio photography. 
+Furthermore, for over a decade, I have been conceptualizing and realizing music videos in collaboration with various artists under the pseudonym Valeum.
